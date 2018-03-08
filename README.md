@@ -1,2 +1,1 @@
-# gilunewrepo
-sree narayana gurukulam 
+ 
